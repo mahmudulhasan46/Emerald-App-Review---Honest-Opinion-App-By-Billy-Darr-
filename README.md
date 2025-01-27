@@ -1,5 +1,5 @@
 
-Emerald App Review – Boost Your YouTube Income
+"Emerald App Review – Boost Your YouTube Income"
 
 Welcome to my Emerald App Review, where I provide an authentic, user-based overview of the Emerald App. I’ll cover its features, upgrades, pricing, bonuses, and what it can do for you, and share my honest opinion.
 
